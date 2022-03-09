@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @ReggyB
+- 👀 I’m interested in learning HTML/CSS, Coding and UI/UX Design - 🌱 I’m currently learning HTML/CSS and would appreciate all the tips and help I can get.I work full time in FM with prior experience volunteering and freelancing as a writer/editor/content creator with knowledge of digital marketing and SM management.
+- 💞️ I’m looking to collaborate on sharing tools, tips and resources to help me reach my goal of becoming fully tech-ified in 6 months.
+- You can reach me on  https://www.linkedin.com/in/regina-blankson 
+- Hope to hear from you
+- 
