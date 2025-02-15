@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @ReggyB...transitioning to tech from operations. 
-- 👀 I’m interested in learning frontend development. Currently building my technical writing skills and network. I would appreciate all the tips and network community links that I can get. I previously worked full-time in operations with transferable project management skills and volunteered as an editor/contributing writer. Basic familiarity with digital marketing, Hubspot, and SM management tools. 💞️ I’m looking to collaborate on sharing tools, tips, and resources to help me become fully "tech-ified" in 6 months.
+- 👀 I’m currently learning cybersecuirty and hope to solodify my project management and technical writing skills to build a career in compliance and risk management. I would appreciate all the tips and opprtunities to work with other learners on projects to build up my portfolio amd I am willing to collaborate on projects shocasing compliance, risk and regu;atory framework management and auidts. I have transferable skills in operations, stakeholder mangement, research analyst and ghostwriter.
+- I’m looking to collaborate on sharing tools, tips, and resources to help me become fully "tech-ified" in 6 months.
 - You can reach me at https://www.linkedin.com/in/regina-blankson or check out my writing on https://hashnode.com/@ReggyB 
 - Hope to hear from you
 - 
