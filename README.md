@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ReggyB...transitioning to tech from operations. 
-- 👀 I’m currently learning cybersecuirty and hope to solidify my project management and technical writing skills to build a career in compliance and risk management. I would appreciate all the tips and opprtunities to work with other learners on projects to build up my portfolio amd I am willing to collaborate on projects shocasing compliance, risk and regulatory framework management and audits. I have transferable skills in operations, stakeholder management, research analysis and ghostwriting.
+- 👀 I’m currently learning cybersecuirty and hope to solidify my project management and technical writing skills to build a career in compliance and risk management. I would appreciate all the tips and opportunities to work with other learners on projects to build up my portfolio amd I am willing to collaborate on projects shocasing compliance, risk and regulatory framework management and audits. I have transferable skills in operations, stakeholder management, research analysis and ghostwriting.
 - I’m looking to collaborate on sharing tools, tips, and resources to help me become fully "GRC-tech-ified" in 6 months.
 - You can reach me at https://www.linkedin.com/in/regina-blankson or check out my writing on https://hashnode.com/@ReggyB 
 - Hope to hear from you
